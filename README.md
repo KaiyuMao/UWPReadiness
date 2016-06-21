@@ -1,3 +1,3 @@
 # UWPReadiness
-![alt tag]./Images/UWP-1.png
+![alt tag](http://tinypic.com/r/x5rqq8/9)
 
