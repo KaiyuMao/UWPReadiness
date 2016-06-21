@@ -1,3 +1,3 @@
 # UWPReadiness
-![alt tag](http://i63.tinypic.com/2r6e2xw.png)
+![alt tag](http://i65.tinypic.com/i517dc.png)
 
